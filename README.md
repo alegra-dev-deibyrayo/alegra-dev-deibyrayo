@@ -14,6 +14,3 @@ I love balancing **exercise**, **creativity**, and **continuous learning**. When
 *   📚 Reading and exploring new technologies.
 *   💡 Working on entrepreneurial ideas and designing useful products.
 *   🤝 Connecting with people to share experiences and ideas.
-
----
-📫 **Let's connect:** [Insert your Portfolio Link Here]
